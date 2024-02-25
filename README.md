@@ -1,1 +1,1 @@
-# cybersecurity-university
+# University of Universities
